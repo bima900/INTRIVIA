@@ -10,3 +10,6 @@ Intrivia menurut saya sejauh ini cukup biasa, materi dari intrivia masih tidak j
 
 ## Kesan Pesan Cluster 5 Sejauh Ini 
 Cluster 5 sangat asik, anggotanya ramah-ramah, kakak fasilitatornya baik-baik.
+
+## Harapan Kuliah 
+Harapan kuliah saya, saya bisa menjalani perkuliahan saya dengan baik.
